@@ -49,8 +49,9 @@ HSBC.
 
 ## **Key Skills**
 - Brand Strategy & Campaign Planning  
-- Social Media Management  
+- Digital Marketing  
 - Event Organisation & Coordination  
+- Develope partnership channels for high-net-worth client acquisition
 - Bilingual Content Creation (English & Chinese)  
 - Cross-cultural Communication
 
