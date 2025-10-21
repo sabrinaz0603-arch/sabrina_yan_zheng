@@ -5,50 +5,50 @@ Marketing and Communications professional with 14 years’ experience in brand s
  Bilingual in English & Chinese | Passionate about cross-cultural communication and community engagement  
 
 #   Working Experience  
-### **2025 – Present | Silverdale Business Association (Auckland, NZ)**
+### **2025.10 – Present | Silverdale Business Association (Auckland, NZ)**
 **Digital & Event Marketing (Part-time)**  
 - Update website and manage social media content (copywriting, scheduling, e-letter creation).  
 - Support planning and on-site execution of local business events such as the Annual Brand Summit, Brainy Breakfast, and Monthly Meet-ups.  
 
-### **2025 | Marketing Association (Auckland, NZ)**
+### **2025.9 - Present | Marketing Association (Auckland, NZ)**
 **Student Ambassador (Internship)**  
 - Produced event highlight reels and live coverage to drive audience engagement.  
 - Assisted in event planning and reflective reporting for professional gatherings.  
 
-### **2025 | Business North Harbour (Auckland, NZ)**
+### **2025.6 - 2025.8 | Business North Harbour (Auckland, NZ)**
 **Marketing Intern**  
 - Managed bilingual (English/Chinese) social media campaigns across Facebook and LinkedIn.  
 - Coordinated logistics and communication for networking sessions, workshops, and training programs.  
 
-### **2025 – Present | Windsor Park Baptist Church (Auckland, NZ)**
+### **2025.9 – Present | Windsor Park Baptist Church (Auckland, NZ)**
 **Volunteer**  
 - Supported community events such as International Day and assisted with daily coordination activities.  
 
-### **2016 – 2018 | Visas Consulting Group (Shenzhen, China)**
+### **2016.5 – 2018.5 | Visas Consulting Group (Shenzhen, China)**
 **Marketing Director**  
 - Directed regional marketing strategy and brand promotion for high-net-worth clients.  
 - Planned and executed large-scale multi-channel campaigns (300–1000 attendees).  
 - Built strategic partnerships with banks, education providers, and real estate firms.  
 
-### **2013 – 2016 | WaiLian Group (Shanghai, China)**
+### **2013.6 – 2016.4 | WaiLian Group (Shanghai, China)**
 **Marketing Director**  
 - Led a 15-member marketing team to deliver national brand campaigns and partner initiatives.  
 - Managed cross-border marketing with HSBC and international schools.  
 
-### **2012 – 2013 | Shanghai Rego International School (Shanghai, China)**
+### **2012.7 – 2013.5 | Shanghai Rego International School (Shanghai, China)**
 **Recruitment Marketing Manager**  
 - Developed marketing strategies to attract international students and families.  
 - Organised community and cultural events to promote the school’s reputation.  
 
-### **2009 – 2012 | Metis-Jujing Marketing Research Company (Shanghai, China)**
+### **2009.7 – 2012.7 | Metis-Jujing Marketing Research Company (Shanghai, China)**
 **CEO Assistant**  
 - Supported market research analysis, client proposals, and internal recruitment processes.  
 
-### **2005 – 2009 | Speaker Factory (Zhejiang, China)**
+### **2005.3 – 2009.6 | Speaker Factory (Zhejiang, China)**
 **Assistant to General Manager**  
 - Assisted in project coordination, documentation, and international communication tasks.  
 
-## 💡 Key Skills
+## Key Skills
 - Brand Strategy & Campaign Planning  
 - Social Media Management  
 - Event Organisation & Coordination  
