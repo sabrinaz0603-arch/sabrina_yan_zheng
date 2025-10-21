@@ -1,10 +1,10 @@
 #   Sabrina Zheng
 Marketing and Communications professional with 14 years’ experience in brand strategy, social media, and event marketing. Now based in Auckland, I’ve begun a new role with the Silverdale Business Association. Skilled in storytelling, bilingual communication, and cross-cultural engagement, I connect people and brands through meaningful experiences.
-#   Working Experience  
- **Marketing & Communications Professional | Brand Strategy | Digital Marketing | Event Management**  
+**Marketing & Communications Professional | Brand Strategy | Digital Marketing | Event Management**  
  Auckland, New Zealand  
  Bilingual in English & Chinese | Passionate about cross-cultural communication and community engagement  
 
+#   Working Experience  
 ### **2025 – Present | Silverdale Business Association (Auckland, NZ)**
 **Digital & Event Marketing (Part-time)**  
 - Update website and manage social media content (copywriting, scheduling, e-letter creation).  
