@@ -5,6 +5,6 @@ Marketing and Communications professional with 14 years’ experience in brand s
  Marketing & Communications | Digital Campaigns | Event Storytelling  
  Currently learning data-driven marketing analytics and AI tools  
  Passionate about creating emotional brand experiences that connect cultures  
- ## 🧩 Projects
-##  Connect with Me
-[LinkedIn](https://www.linkedin.com/in/sabrina-yan-zheng/)) | [Email Me](mailto:sabrinaz0603@gmail.com)
+ ## Projects
+ ##  Connect with Me
+     [LinkedIn](https://www.linkedin.com/in/sabrina-yan-zheng/)) | [Email Me](mailto:sabrinaz0603@gmail.com)
