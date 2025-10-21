@@ -1,8 +1,8 @@
-#   Sabrina Zheng
+#   **Sabrina Zheng**
 Marketing and Communications professional with 14 years’ experience in brand strategy, social media, and event marketing. 
 Now based in Auckland, I’ve begun a new role with the Silverdale Business Association. Skilled in storytelling, bilingual communication, and cross-cultural engagement, I am enjoying connecting people and brands through meaningful experiences.
 
-##  Working Experience  
+##  **Working Experience**
 ### **2025.10 – Present | Silverdale Business Association (Auckland, NZ)**
 **Digital & Event Marketing (Part-time)**  
 - Update website and manage social media content (copywriting, scheduling, e-letter creation).  
@@ -47,19 +47,19 @@ HSBC.
 **Assistant to General Manager**  
 - Assisted in project coordination, documentation, and international communication tasks.  
 
-## Key Skills
+## **Key Skills**
 - Brand Strategy & Campaign Planning  
 - Social Media Management  
 - Event Organisation & Coordination  
 - Bilingual Content Creation (English & Chinese)  
 - Cross-cultural Communication
 
-## Projects - My Work & Reflections
+## **Projects - My Work & Reflections**
 
 ### Christmas Campaign Plan - Silverdale Business
 [A Silverdale Kind of Christmas — Stay Local, Feel the Magic](https://drive.google.com/file/d/1UrOVsrUfsQfZXdC0BzS7xNe6NyfbT4c8/view?usp=sharing)
 
-### Event Video Highlights
+### Event Video Highlights**
 Here are some of the videos I personally filmed and edited during my marketing and event support roles in New Zealand.  
 They reflect my ability to tell brand stories through authentic moments, capture audience emotions, and create engaging digital content.
 **Event Highlight – Marketing Association**  
@@ -75,9 +75,9 @@ They reflect my ability to tell brand stories through authentic moments, capture
 **Recent Reflections:**  
 - [Marketing Association Meet-Up.Sep 2025-AI in B2B](https://drive.google.com/file/d/1znP0DhSnTlGgMJ1qAKVKE-4QfbdkIPO5/view?usp=sharing)  
 
-##  Education
+##  **Education**
 **Master of Management (Marketing)** – *Massey University, Auckland*  
 **Master of Business Administration** – *Shanghai University*  
  
-##  Connect Me 
+##  **Connect Me**
 [LinkedIn](https://www.linkedin.com/in/sabrina-yan-zheng/) | [Email Me](mailto:sabrinaz0603@gmail.com)
