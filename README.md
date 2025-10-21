@@ -61,13 +61,13 @@ Marketing and Communications professional with 14 years’ experience in brand s
 Here are some of the videos I personally filmed and edited during my marketing and event support roles in New Zealand.  
 They reflect my ability to tell brand stories through authentic moments, capture audience emotions, and create engaging digital content.
 **Event Highlight – Marketing Association**  
-[!Watch the video.Brainy Breakfast](https://youtube.com/shorts/FfgbySwHwzM?feature=share)  
-[!Watch the video.Monthly Meet-Up](https://youtube.com/shorts/CeO3JJ_VcGY?feature=share)  
+[Watch the video.Brainy Breakfast](https://youtube.com/shorts/FfgbySwHwzM?feature=share)  
+[Watch the video.Monthly Meet-Up](https://youtube.com/shorts/CeO3JJ_VcGY?feature=share)  
 *Role:* On-site content capture, video editing, and post-event storytelling.  
 
 **Event & Promotion Reels - Massey University**
-[!Watch the video.One Day@Massey University](https://youtube.com/shorts/IdSLhxBmZIM?feature=share)
-[!Watch the Video.Focus on Your Future](https://youtube.com/shorts/IdSLhxBmZIM?feature=share)
+[Watch the video.One Day@Massey University](https://youtube.com/shorts/hMHBeS45_vw?feature=share)
+[Watch the Video.Focus on Your Future](https://youtube.com/shorts/IdSLhxBmZIM?feature=share)
 
 ### Marketing Reflections
 **Recent Reflections:**  
