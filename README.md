@@ -7,4 +7,4 @@ Marketing and Communications professional with 14 years’ experience in brand s
  Passionate about creating emotional brand experiences that connect cultures  
  ## Projects
  ##  Connect with Me
-   [LinkedIn](https://www.linkedin.com/in/sabrina-yan-zheng/)) | [Email Me](mailto:sabrinaz0603@gmail.com)
+   [LinkedIn](https://www.linkedin.com/in/sabrina-yan-zheng/) | [Email Me](mailto:sabrinaz0603@gmail.com)
