@@ -6,16 +6,16 @@ Now based in Auckland, I’ve begun a new role with the Silverdale Business Asso
 ### **2025.10 – Present | Silverdale Business Association (Auckland, NZ)**
 **Digital & Event Marketing (Part-time)**  
 - Update website and manage social media content (copywriting, scheduling, e-letter creation).  
-- Support planning and on-site execution of local business events such as the Annual Brand Summit, Brainy Breakfast, and Monthly Meet-ups.  
+- Support planning and on-site execution of local business events.  
 
 ### **2025.9 - Present | Marketing Association (Auckland, NZ)**
 **Student Ambassador (Internship)**  
-- Produced event highlight reels and live coverage to drive audience engagement.  
-- Assisted in event planning and reflective reporting for professional gatherings.  
+- Produce highlight reels and live coverage for events such as the Annual Brand Summit, Brainy Breakfast, and Monthly Meet-ups.  
+- Assist MA. in events preparation and reflective reporting for professional gatherings.  
 
 ### **2025.6 - 2025.8 | Business North Harbour (Auckland, NZ)**
 **Marketing Intern**  
-- Managed bilingual (English/Chinese) social media campaigns across Facebook and LinkedIn.  
+- Managed bilingual (English/Chinese) social media campaigns across Facebook, Instagram and LinkedIn. Update website and manage e-letter content (copywriting, scheduling, e-letter creation).  
 - Coordinated logistics and communication for networking sessions, workshops, and training programs.  
 
 ### **2025.9 – Present | Windsor Park Baptist Church (Auckland, NZ)**
@@ -26,12 +26,13 @@ Now based in Auckland, I’ve begun a new role with the Silverdale Business Asso
 **Marketing Director**  
 - Directed regional marketing strategy and brand promotion for high-net-worth clients.  
 - Planned and executed large-scale multi-channel campaigns (300–1000 attendees).  
-- Built strategic partnerships with banks, education providers, and real estate firms.  
+- Development of strategic alliances across diverse sectors, encompassing banking, financial services, real estate, educational institutions, and exclusive membership organizations, including but not limited to: Bank of China, Construction Bank, CITIC Bank, China Merchants Bank, Bright Bank of China, Vanke, Huarun, and Lianjia.
 
 ### **2013.6 – 2016.4 | WaiLian Group (Shanghai, China)**
 **Marketing Director**  
 - Led a 15-member marketing team to deliver national brand campaigns and partner initiatives.  
-- Managed cross-border marketing with HSBC and international schools.  
+- Develop and maintain strategic partnerships with various channels, including Noah Wealth, Zhongliang Real Estate, and
+HSBC. 
 
 ### **2012.7 – 2013.5 | Shanghai Rego International School (Shanghai, China)**
 **Recruitment Marketing Manager**  
