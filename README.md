@@ -57,6 +57,9 @@ Marketing and Communications professional with 14 years’ experience in brand s
 
 ## Projects - My Work & Reflections
 
+### Christmas Campaign Plan - Silverdale Business
+[A Silverdale Kind of Christmas — Stay Local, Feel the Magic](https://drive.google.com/file/d/1UrOVsrUfsQfZXdC0BzS7xNe6NyfbT4c8/view?usp=sharing)
+
 ### Event Video Highlights
 Here are some of the videos I personally filmed and edited during my marketing and event support roles in New Zealand.  
 They reflect my ability to tell brand stories through authentic moments, capture audience emotions, and create engaging digital content.
