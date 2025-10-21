@@ -71,7 +71,7 @@ They reflect my ability to tell brand stories through authentic moments, capture
 
 ### Marketing Reflections
 **Recent Reflections:**  
-- [Marketing Association Meet-Up.Sep 2025-AI in B2B](https://docs.google.com/document/d/1epT2AknqwKifwKKBXXMSkRusFUPcvNSr/edit?usp=drive_link&ouid=111504234621745885924&rtpof=true&sd=true)  
+- [Marketing Association Meet-Up.Sep 2025-AI in B2B](https://drive.google.com/file/d/1znP0DhSnTlGgMJ1qAKVKE-4QfbdkIPO5/view?usp=sharing)  
 
 ##  Education
 **Master of Management (Marketing)** – *Massey University, Auckland*  
