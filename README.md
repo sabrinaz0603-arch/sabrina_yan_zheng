@@ -62,18 +62,16 @@ Here are some of the videos I personally filmed and edited during my marketing a
 They reflect my ability to tell brand stories through authentic moments, capture audience emotions, and create engaging digital content.
 **Event Highlight – Marketing Association**  
 - Watch the video:
-[Brainy Breakfast](https://youtube.com/shorts/FfgbySwHwzM?feature=share)  
-[Monthly Meet-Up](https://youtube.com/shorts/CeO3JJ_VcGY?feature=share)  
+[Brainy Breakfast](https://youtube.com/shorts/FfgbySwHwzM?feature=share)  | [Monthly Meet-Up](https://youtube.com/shorts/CeO3JJ_VcGY?feature=share)  
 *Role:* On-site content capture, video editing, and post-event storytelling.  
 
 **Event & Promotion Reels - Massey University**
 - Watch the Video:
-[One Day@Massey University](https://youtube.com/shorts/hMHBeS45_vw?feature=share)
-[Focus on Your Future](https://youtube.com/shorts/IdSLhxBmZIM?feature=share)
+[One Day@Massey University](https://youtube.com/shorts/hMHBeS45_vw?feature=share) | [Focus on Your Future](https://youtube.com/shorts/IdSLhxBmZIM?feature=share)
 
 ### Marketing Reflections
 **Recent Reflections:**  
-[Marketing Association Meet-Up.Sep 2025-AI in B2B](https://docs.google.com/document/d/1epT2AknqwKifwKKBXXMSkRusFUPcvNSr/edit?usp=drive_link&ouid=111504234621745885924&rtpof=true&sd=true)  
+- [Marketing Association Meet-Up.Sep 2025-AI in B2B](https://docs.google.com/document/d/1epT2AknqwKifwKKBXXMSkRusFUPcvNSr/edit?usp=drive_link&ouid=111504234621745885924&rtpof=true&sd=true)  
 
 ##  Education
 **Master of Management (Marketing)** – *Massey University, Auckland*  
