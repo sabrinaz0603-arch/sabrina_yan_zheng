@@ -62,6 +62,7 @@ HSBC.
 ### Event Video Highlights
 Here are some of the videos I personally filmed and edited during my marketing and event support roles in New Zealand.  
 They reflect my ability to tell brand stories through authentic moments, capture audience emotions, and create engaging digital content.
+
 **Event Highlight – Marketing Association**  
 - Watch the video:
 [Brainy Breakfast](https://youtube.com/shorts/FfgbySwHwzM?feature=share)  | [Monthly Meet-Up](https://youtube.com/shorts/CeO3JJ_VcGY?feature=share)  
