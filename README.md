@@ -78,7 +78,7 @@ They reflect my ability to tell brand stories through authentic moments, capture
 
 ##  **Education**
 **Master of Management (Marketing)** – *Massey University, Auckland*  
-**Master of Business Administration** – *Shanghai University*  
+**Master of Business Administration** – *Shanghai International Studies University*  
  
 ##  **Connect Me**
 [LinkedIn](https://www.linkedin.com/in/sabrina-yan-zheng/) | [Email Me](mailto:sabrinaz0603@gmail.com)
