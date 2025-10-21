@@ -57,7 +57,7 @@ Marketing and Communications professional with 14 years’ experience in brand s
 
 ## Projects
 
-## 🎓 Education
+##  Education
 **Master of Management (Marketing)** – *Massey University, Auckland*  
 **Master of Business Administration** – *Shanghai University*  
  
