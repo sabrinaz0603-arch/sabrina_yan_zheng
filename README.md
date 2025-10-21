@@ -26,7 +26,7 @@ Now based in Auckland, I’ve begun a new role with the Silverdale Business Asso
 **Marketing Director**  
 - Directed regional marketing strategy and brand promotion for high-net-worth clients.  
 - Planned and executed large-scale multi-channel campaigns (300–1000 attendees).  
-- Development of strategic alliances across diverse sectors, encompassing banking, financial services, real estate, educational institutions, and exclusive membership organizations, including but not limited to: Bank of China, Construction Bank, CITIC Bank, China Merchants Bank, Bright Bank of China, Vanke, Huarun, and Lianjia.
+- Development of strategic alliances across diverse sectors, encompassing leading private banking, financial services, real estate, educational institutions, and exclusive membership organizations, including but not limited to: Bank of China, Construction Bank, CITIC Bank, China Merchants Bank, Bright Bank of China, Vanke, Huarun, and Lianjia.
 
 ### **2013.6 – 2016.4 | WaiLian Group (Shanghai, China)**
 **Marketing Director**  
