@@ -55,7 +55,24 @@ Marketing and Communications professional with 14 years’ experience in brand s
 - Bilingual Content Creation (English & Chinese)  
 - Cross-cultural Communication
 
-## Projects
+## Projects - My Work & Reflections
+
+### Event Video Highlights
+Here are some of the videos I personally filmed and edited during my marketing and event support roles in New Zealand.  
+They reflect my ability to tell brand stories through authentic moments, capture audience emotions, and create engaging digital content.
+**Event Highlight – Marketing Association**  
+[![Watch the video.Brainy Breakfast](https://youtube.com/shorts/FfgbySwHwzM?feature=share)  
+[![Watch the video.Monthly Meet-Up](https://youtube.com/shorts/CeO3JJ_VcGY?feature=share)  
+*Role:* On-site content capture, video editing, and post-event storytelling.  
+
+**Event & Promotion Reels - Massey University**
+[![Watch the video.One Day@Massey University](https://youtube.com/shorts/IdSLhxBmZIM?feature=share)
+[!Watch the Video.Focus on Your Future](https://youtube.com/shorts/IdSLhxBmZIM?feature=share)
+
+### Marketing Reflections
+**Recent Reflections:**  
+- [Marketing Association Meet-Up.Sep 2025-AI in B2B](https://docs.google.com/document/d/1epT2AknqwKifwKKBXXMSkRusFUPcvNSr/edit?usp=drive_link&ouid=111504234621745885924&rtpof=true&sd=true)  
+
 
 ##  Education
 **Master of Management (Marketing)** – *Massey University, Auckland*  
