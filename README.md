@@ -1,33 +1,65 @@
 #   Sabrina Zheng
 Marketing and Communications professional with 14 years’ experience in brand strategy, social media, and event marketing. Now based in Auckland, I’ve begun a new role with the Silverdale Business Association. Skilled in storytelling, bilingual communication, and cross-cultural engagement, I connect people and brands through meaningful experiences.
-# Working Experience  
-Currently based in Auckland, I’ve recently begun a new role with the **Silverdale Business Association**, contributing to digital content and event promotion.  
+#   Working Experience  
+ **Marketing & Communications Professional | Brand Strategy | Digital Marketing | Event Management**  
+ Auckland, New Zealand  
+ Bilingual in English & Chinese | Passionate about cross-cultural communication and community engagement  
 
-Previously, I gained hands-on experience with:
-- **Business North Harbour** – Managed bilingual social media campaigns, event logistics, and business networking programs.  
-- **Marketing Association** – Supported event coverage, created live and highlight content, and strengthened audience engagement.  
-- **Windsor Park Baptist Church** – Assisted with community events such as International Day and daily coordination.  
+### **2025 – Present | Silverdale Business Association (Auckland, NZ)**
+**Digital & Event Marketing (Part-time)**  
+- Update website and manage social media content (copywriting, scheduling, e-letter creation).  
+- Support planning and on-site execution of local business events such as the Annual Brand Summit, Brainy Breakfast, and Monthly Meet-ups.  
 
-Before moving to New Zealand, I held senior marketing leadership roles in China with:
-- **Visas Consulting Group** – Directed regional marketing strategies and large-scale campaigns.  
-- **WaiLian Group** – Led cross-border marketing and brand partnerships.  
-- **Shanghai Rego International School** – Developed recruitment marketing and community outreach initiatives.  
+### **2025 | Marketing Association (Auckland, NZ)**
+**Student Ambassador (Internship)**  
+- Produced event highlight reels and live coverage to drive audience engagement.  
+- Assisted in event planning and reflective reporting for professional gatherings.  
 
-These experiences strengthened my skills in **storytelling, cross-cultural communication, and event strategy**, allowing me to bridge brands and communities through creative, meaningful engagement.
+### **2025 | Business North Harbour (Auckland, NZ)**
+**Marketing Intern**  
+- Managed bilingual (English/Chinese) social media campaigns across Facebook and LinkedIn.  
+- Coordinated logistics and communication for networking sessions, workshops, and training programs.  
 
-## Core Skills
-- Brand Strategy & Campaign Management  
-- Social Media Marketing (Facebook, LinkedIn, WeChat)  
-- Event Planning & On-site Coordination  
+### **2025 – Present | Windsor Park Baptist Church (Auckland, NZ)**
+**Volunteer**  
+- Supported community events such as International Day and assisted with daily coordination activities.  
+
+### **2016 – 2018 | Visas Consulting Group (Shenzhen, China)**
+**Marketing Director**  
+- Directed regional marketing strategy and brand promotion for high-net-worth clients.  
+- Planned and executed large-scale multi-channel campaigns (300–1000 attendees).  
+- Built strategic partnerships with banks, education providers, and real estate firms.  
+
+### **2013 – 2016 | WaiLian Group (Shanghai, China)**
+**Marketing Director**  
+- Led a 15-member marketing team to deliver national brand campaigns and partner initiatives.  
+- Managed cross-border marketing with HSBC and international schools.  
+
+### **2012 – 2013 | Shanghai Rego International School (Shanghai, China)**
+**Recruitment Marketing Manager**  
+- Developed marketing strategies to attract international students and families.  
+- Organised community and cultural events to promote the school’s reputation.  
+
+### **2009 – 2012 | Metis-Jujing Marketing Research Company (Shanghai, China)**
+**CEO Assistant**  
+- Supported market research analysis, client proposals, and internal recruitment processes.  
+
+### **2005 – 2009 | Speaker Factory (Zhejiang, China)**
+**Assistant to General Manager**  
+- Assisted in project coordination, documentation, and international communication tasks.  
+
+## 💡 Key Skills
+- Brand Strategy & Campaign Planning  
+- Social Media Management  
+- Event Organisation & Coordination  
 - Bilingual Content Creation (English & Chinese)  
-- Community Engagement & Stakeholder Relations  
+- Cross-cultural Communication
 
+## Projects
 
-## Currently
-Based in **Auckland, New Zealand**  
-Pursuing a **Master of Management (Marketing)** at **Massey University**  
-Passionate about bridging **Asia-Pacific markets** through creative communication and authentic storytelling.  
- ## Projects
+## 🎓 Education
+**Master of Management (Marketing)** – *Massey University, Auckland*  
+**Master of Business Administration** – *Shanghai University*  
  
- ##  Connect Me
-   [LinkedIn](https://www.linkedin.com/in/sabrina-yan-zheng/) | [Email Me](mailto:sabrinaz0603@gmail.com)
+##  Connect Me 
+[LinkedIn](https://www.linkedin.com/in/sabrina-yan-zheng/) | [Email Me](mailto:sabrinaz0603@gmail.com)
