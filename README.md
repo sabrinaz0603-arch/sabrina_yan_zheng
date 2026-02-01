@@ -4,10 +4,10 @@ Currently based in Auckland, I support the Silverdale Business Association on a 
 With strengths in storytelling, bilingual communication, and cross-cultural engagement, I enjoy bringing people, brands, and communities together through meaningful experiences.
 
 ##  **Working Experience**
-### **2025.10 – Present | Silverdale Business Association (Auckland, NZ)**
+### **2025.10 – Present | Silverdale Business (Auckland, NZ)**
 **Digital & Event Marketing (Part-time)**  
-	•	manage social media channels, including copywriting, content creation and scheduling, and e-newsletter (EDM) creation
-	•	Supported the planning and on-site execution of local business and community events, coordinating with stakeholders and assisting with event operations
+- manage social media channels, including copywriting, content creation and scheduling, and e-newsletter (EDM) creation
+- Supported the planning and on-site execution of local business and community events, coordinating with stakeholders and assisting with event operations
 
 ### **2025.9 - Present | Marketing Association (Auckland, NZ)**
 **Student Ambassador (Internship)**  
@@ -56,7 +56,7 @@ HSBC.
 - Bilingual Content Creation (English & Chinese)  
 - Cross-cultural Communication
 
-## **Projects - My Work & Reflections**
+## **Projects**
 
 ### Christmas Campaign Series – Silverdale Business Association
 **Led a Christmas social media campaign, producing 39 short-form video reels within 1.5 months to promote local businesses and drive community engagement**
