@@ -5,8 +5,8 @@ Now based in Auckland, I’ve begun a new role with the Silverdale Business Asso
 ##  **Working Experience**
 ### **2025.10 – Present | Silverdale Business Association (Auckland, NZ)**
 **Digital & Event Marketing (Part-time)**  
-- Update website and manage social media content (copywriting, scheduling, e-letter creation).  
-- Support planning and on-site execution of local business events.  
+	•	manage social media channels, including copywriting, content creation and scheduling, and e-newsletter (EDM) creation
+	•	Supported the planning and on-site execution of local business and community events, coordinating with stakeholders and assisting with event operations
 
 ### **2025.9 - Present | Marketing Association (Auckland, NZ)**
 **Student Ambassador (Internship)**  
@@ -57,8 +57,13 @@ HSBC.
 
 ## **Projects - My Work & Reflections**
 
-### Christmas Campaign Plan - Silverdale Business
-[A Silverdale Kind of Christmas — Stay Local, Feel the Magic](https://drive.google.com/file/d/1UrOVsrUfsQfZXdC0BzS7xNe6NyfbT4c8/view?usp=sharing)
+### Christmas Campaign Series – Silverdale Business Association
+	-	Led a Christmas social media campaign, producing 39 short-form video reels within 1.5 months to promote local businesses and drive community engagement
+[Christmas Campaign— Season of Joy](https://www.instagram.com/reels/DSEGvWBjG8-/)
+
+### New Members Introduction Series – Silverdale Business Association
+	-	Created and published 35 social media posts in one month to introduce new member businesses and increase local visibility
+[New Members Introduction Series](https://www.facebook.com/SilverdaleBusiness/posts/pfbid028Uj84Lut8eZWvQZbPhp8srHxfyUCpmz1vQyePUQeaY7JuFxjMJMg43gufsNyyTtVl)
 
 ### Event Video Highlights
 Here are some of the videos I personally filmed and edited during my marketing and event support roles in New Zealand.  
