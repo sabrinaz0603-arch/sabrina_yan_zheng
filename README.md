@@ -62,8 +62,8 @@ HSBC.
 Led a Christmas social media campaign, filming and producing 39 short-form video reels within 1.5 months to promote local businesses and drive community engagement.
 - Example:
 [Christmas Campaign— Season of Joy](https://www.instagram.com/reels/DSEGvWBjG8-/) 
-### New Members Introduction Series – Silverdale Business
 
+### New Members Introduction Series – Silverdale Business
 Created and published 35 social media posts in one month to introduce new member businesses and increase local visibility.
 - Example:
 [New Members Introduction Series](https://www.facebook.com/SilverdaleBusiness/posts/pfbid028Uj84Lut8eZWvQZbPhp8srHxfyUCpmz1vQyePUQeaY7JuFxjMJMg43gufsNyyTtVl)
