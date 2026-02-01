@@ -59,13 +59,14 @@ HSBC.
 ## **Projects - My Work & Reflections**
 
 ### Christmas Campaign Series – Silverdale Business Association
-- Led a Christmas social media campaign, producing 39 short-form video reels within 1.5 months to promote local businesses and drive community engagement
+**Led a Christmas social media campaign, producing 39 short-form video reels within 1.5 months to promote local businesses and drive community engagement**
 - Example:
 [Christmas Campaign— Season of Joy](https://www.instagram.com/reels/DSEGvWBjG8-/) 
 
 ### New Members Introduction Series – Silverdale Business Association
-- Created and published 35 social media posts in one month to introduce new member businesses and increase local visibility
-- Example:[New Members Introduction Series](https://www.facebook.com/SilverdaleBusiness/posts/pfbid028Uj84Lut8eZWvQZbPhp8srHxfyUCpmz1vQyePUQeaY7JuFxjMJMg43gufsNyyTtVl)
+**Created and published 35 social media posts in one month to introduce new member businesses and increase local visibility**
+- Example:
+[New Members Introduction Series](https://www.facebook.com/SilverdaleBusiness/posts/pfbid028Uj84Lut8eZWvQZbPhp8srHxfyUCpmz1vQyePUQeaY7JuFxjMJMg43gufsNyyTtVl)
 
 ### Event Video Highlights
 Here are some of the videos I personally filmed and edited during my marketing and event support roles in New Zealand.  
