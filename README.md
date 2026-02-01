@@ -81,10 +81,6 @@ They reflect my ability to tell brand stories through authentic moments, capture
 - Watch the Video:
 [One Day@Massey University](https://youtube.com/shorts/hMHBeS45_vw?feature=share) | [Focus on Your Future](https://youtube.com/shorts/IdSLhxBmZIM?feature=share)
 
-### Marketing Reflections
-**Recent Reflections:**  
-- [Marketing Association Meet-Up.Sep 2025-AI in B2B](https://drive.google.com/file/d/1znP0DhSnTlGgMJ1qAKVKE-4QfbdkIPO5/view?usp=sharing)  
-
 ##  **Education**
 **Master of Management (Marketing)** – *Massey University, Auckland*  
 **Master of Business Administration** – *Shanghai International Studies University*  
