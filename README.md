@@ -60,7 +60,8 @@ HSBC.
 
 ### Christmas Campaign Series – Silverdale Business Association
 - Led a Christmas social media campaign, producing 39 short-form video reels within 1.5 months to promote local businesses and drive community engagement
-- Example:[Christmas Campaign— Season of Joy](https://www.instagram.com/reels/DSEGvWBjG8-/)
+- Example:
+[Christmas Campaign— Season of Joy](https://www.instagram.com/reels/DSEGvWBjG8-/) 
 
 ### New Members Introduction Series – Silverdale Business Association
 - Created and published 35 social media posts in one month to introduce new member businesses and increase local visibility
