@@ -63,6 +63,7 @@ HSBC.
 - Example:
 [Christmas Campaign— Season of Joy](https://www.instagram.com/reels/DSEGvWBjG8-/) 
 ### New Members Introduction Series – Silverdale Business
+
 **Created and published 35 social media posts in one month to introduce new member businesses and increase local visibility**
 - Example:
 [New Members Introduction Series](https://www.facebook.com/SilverdaleBusiness/posts/pfbid028Uj84Lut8eZWvQZbPhp8srHxfyUCpmz1vQyePUQeaY7JuFxjMJMg43gufsNyyTtVl)
@@ -70,10 +71,12 @@ HSBC.
 ### Event Video Highlights
 Here are some of the videos I personally filmed and edited during my marketing and event support roles in New Zealand.  
 They reflect my ability to tell brand stories through authentic moments, capture audience emotions, and create engaging digital content.
+
 **Event Highlight – Marketing Association**  
 - Watch the video:
 [Brainy Breakfast](https://youtube.com/shorts/FfgbySwHwzM?feature=share)  | [Monthly Meet-Up](https://youtube.com/shorts/CeO3JJ_VcGY?feature=share)  
 *Role:* On-site content capture, video editing, and post-event storytelling.  
+
 **Event & Promotion Reels - Massey University**
 - Watch the Video:
 [One Day@Massey University](https://youtube.com/shorts/hMHBeS45_vw?feature=share) | [Focus on Your Future](https://youtube.com/shorts/IdSLhxBmZIM?feature=share)
