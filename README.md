@@ -1,6 +1,7 @@
 #   **Sabrina Zheng**
-Marketing and Communications professional with 14 years’ experience in brand strategy, social media, and event marketing. 
-Now based in Auckland, I’ve begun a new role with the Silverdale Business Association. Skilled in storytelling, bilingual communication, and cross-cultural engagement, I am enjoying connecting people and brands through meaningful experiences.
+Marketing and Communications professional with 14 years’ experience across brand strategy, social media, and event marketing.
+Currently based in Auckland, I support the Silverdale Business Association on a part-time basis, contributing to social media content and on-the-ground event delivery.
+With strengths in storytelling, bilingual communication, and cross-cultural engagement, I enjoy bringing people, brands, and communities together through meaningful experiences.
 
 ##  **Working Experience**
 ### **2025.10 – Present | Silverdale Business Association (Auckland, NZ)**
@@ -50,20 +51,20 @@ HSBC.
 ## **Key Skills**
 - Brand Strategy & Campaign Planning  
 - Digital Marketing  
-- Event Organisation & Coordination  
-- Develope partnership channels for high-net-worth client acquisition
+- Event Organization & Coordination  
+- Develop partnership channels for high-net-worth client acquisition
 - Bilingual Content Creation (English & Chinese)  
 - Cross-cultural Communication
 
 ## **Projects - My Work & Reflections**
 
 ### Christmas Campaign Series – Silverdale Business Association
-	-	Led a Christmas social media campaign, producing 39 short-form video reels within 1.5 months to promote local businesses and drive community engagement
-[Christmas Campaign— Season of Joy](https://www.instagram.com/reels/DSEGvWBjG8-/)
+- Led a Christmas social media campaign, producing 39 short-form video reels within 1.5 months to promote local businesses and drive community engagement
+- Example:[Christmas Campaign— Season of Joy](https://www.instagram.com/reels/DSEGvWBjG8-/)
 
 ### New Members Introduction Series – Silverdale Business Association
-	-	Created and published 35 social media posts in one month to introduce new member businesses and increase local visibility
-[New Members Introduction Series](https://www.facebook.com/SilverdaleBusiness/posts/pfbid028Uj84Lut8eZWvQZbPhp8srHxfyUCpmz1vQyePUQeaY7JuFxjMJMg43gufsNyyTtVl)
+- Created and published 35 social media posts in one month to introduce new member businesses and increase local visibility
+- Example:[New Members Introduction Series](https://www.facebook.com/SilverdaleBusiness/posts/pfbid028Uj84Lut8eZWvQZbPhp8srHxfyUCpmz1vQyePUQeaY7JuFxjMJMg43gufsNyyTtVl)
 
 ### Event Video Highlights
 Here are some of the videos I personally filmed and edited during my marketing and event support roles in New Zealand.  
