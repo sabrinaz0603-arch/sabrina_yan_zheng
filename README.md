@@ -6,8 +6,9 @@ With strengths in storytelling, bilingual communication, and cross-cultural enga
 ##  **Working Experience**
 ### **2025.10 – Present | Silverdale Business (Auckland, NZ)**
 **Digital & Event Marketing (Part-time)**  
-- manage social media channels, including copywriting, content creation and scheduling, and e-newsletter (EDM) creation
-- Supported the planning and on-site execution of local business and community events, coordinating with stakeholders and assisting with event operations
+- Manage social media channels, including content creation (e.g., video and post production) and scheduling.
+- Update website content.
+- Support on-site execution of local business and community events, including communication with local businesses regarding campaigns or events.
 
 ### **2025.9 - Present | Marketing Association (Auckland, NZ)**
 **Student Ambassador (Internship)**  
@@ -57,6 +58,16 @@ HSBC.
 - Cross-cultural Communication
 
 ## **Projects**
+### Spend & Win Campaign – Silverdale Business
+A community-focused initiative encouraging locals to shop at Silverdale businesses for a chance to win regional prizes.
+* **Digital Promotion:** Executed targeted social media marketing plans across Facebook, Instagram, and LinkedIn to drive public awareness and maximize entry submissions.
+* **Content Creation:** Filmed engaging short-form video assets and wrote persuasive copy tailored to attract broader Auckland shoppers from outside the immediate Silverdale area.
+  - *Campaign Reel:* [Keep the Receipts](https://www.instagram.com/reel/DY5tS5HD0s-/?utm_source=ig_web_copy_link&igsh=MzRlODBiNWFlZA==) — Focused on clear, actionable call-to-actions to build foundational awareness.
+  - *Scenario-based Reel:* [Need a Car Upgrade?](https://www.instagram.com/reel/DZEFtrRCbtx/?utm_source=ig_web_copy_link&igsh=MzRlODBiNWFlZA==) — Designed around consumer pain points and desires (e.g., upgrading a car) to subtly guide viewers into campaign participation.
+* **Business Liaison:** Communicated directly with local merchants to coordinate campaign materials and ensure consistent branding. Actively guided businesses through the onboarding process, addressing individual queries to align them with shared community benefits and drive high engagement.
+
+### Well & Wise Event – Silverdale Business
+
 
 ### Christmas Campaign Series – Silverdale Business
 Led a Christmas social media campaign, filming and producing 39 short-form video reels within 1.5 months to promote local businesses and drive community engagement.
@@ -74,16 +85,16 @@ They reflect my ability to tell brand stories through authentic moments, capture
 
 **Event Highlight – Marketing Association**  
 - Watch the video:
-[Brainy Breakfast](https://youtube.com/shorts/FfgbySwHwzM?feature=share)  | [Monthly Meet-Up](https://youtube.com/shorts/CeO3JJ_VcGY?feature=share)  
+[Brainy Breakfast](https://acesse.one/ev6ohhl)| [Monthly Meet-Up](https://youtube.com/shorts/CeO3JJ_VcGY?feature=share)  
 *Role:* On-site content capture, video editing, and post-event storytelling.  
 
 **Event & Promotion Reels - Massey University**
 - Watch the Video:
-[One Day@Massey University](https://youtube.com/shorts/hMHBeS45_vw?feature=share) | [Focus on Your Future](https://youtube.com/shorts/IdSLhxBmZIM?feature=share)
+[One Day@Massey University](https://acesse.one/mrlo4mu) | [Focus on Your Future](https://youtube.com/shorts/IdSLhxBmZIM?feature=share)
 
 ##  **Education**
 **Master of Management (Marketing)** – *Massey University, Auckland*  
 **Master of Business Administration** – *Shanghai International Studies University*  
  
-##  **Connect Me**
+##  **Contact Me**
 [LinkedIn](https://www.linkedin.com/in/sabrina-yan-zheng/) | [Email Me](mailto:sabrinaz0603@gmail.com)
