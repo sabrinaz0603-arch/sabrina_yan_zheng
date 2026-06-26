@@ -43,7 +43,7 @@ Currently based in Auckland, I support the Silverdale Business Association on a 
 
 ## **Key Skills**
 - **Strategic Business Communication & Negotiation**
-- **Cross-Industry Partnership & Strategic Alliances (异业合作/战略联盟)**
+- **Cross-Industry Partnership & Strategic Alliances**
 - Brand Strategy & Campaign Planning  
 - Digital Marketing  
 - Event Organization & Stakeholder Coordination  
